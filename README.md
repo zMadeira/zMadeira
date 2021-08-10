@@ -35,7 +35,7 @@
   
 Adoro música, toco instrumentos como violão e guitarra. Amo jogar nas horas vagas, me adicione:
   
-<a href="https://steamcommunity.com/profiles/765611983203" target="_blank"><img src="https://img.shields.io/badge/Steam-000000?style=for-the-badge&logo=steam&logoColor=white" target="_blank"></a>
+<a href="https://steamcommunity.com/profiles/76561198320361499/" target="_blank"><img src="https://img.shields.io/badge/Steam-000000?style=for-the-badge&logo=steam&logoColor=white" target="_blank"></a>
   
 ## Redes sociais
   
